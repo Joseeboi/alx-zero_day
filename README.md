@@ -1,1 +1,1 @@
-my first readme
+amazing start a growth mindset
